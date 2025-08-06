@@ -1,1 +1,6 @@
-# sigma--1
+kjiqjeeqqrk
+fjfiefeor
+jqiejje\
+r
+ruqjeeatbafduerpqoj
+tqttji
